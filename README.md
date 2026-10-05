@@ -1,12 +1,12 @@
-<p align="center"> $${\color{#b5794f} ⸺　I　just　cannot　help　myself　but　fall　right　into　You.}$$ ![](https://komarev.com/ghpvc/?username=jamiefkennedys&label=guns&color=b5794f) </p> 
+<p align="center"> $${\color{#b5794f} ⸺　I　just　cannot　help　myself　but　fall　right　into　You.}$$ </p> 
 
 <p align="center"> 
 <img src="https://file.garden/aA8S96EHMAOFVxCO/Untitled272_20260303133627%20(1).png" width="700">
- <p align="center"
+<p align="center" 
 
-${\color{#717170}{\textsf kaveh}} \color{#4c505f}{\textsf{or}}  \color{#717170}{\textsf{kei / kao}}$
+${\color{#b5794f}{\textsf   ︶︶　Jamie}} \color{#8f5231}{\textsf{ou　}}  \color{#501913}{\textsf{　Nixon}}$
 <br/>
-${\color{#717170}{\textsf he ⭑ any}} \color{#decfa3}{\textsf{　꒱　}} \color{#b1a88e}{\textsf{enfp-t }}  \color{#4c505f}{\textsf{eng only}}$
+${\color{#442b1e}{\textsf he ⭑ it}} \color{#8f5231}{\textsf{　 ᛝ　}} \color{#b1a88e}{\textsf{enfp-t }}  \color{#4c505f}{\textsf{eng only}}$
 <br/>
 ${\color{#b1a88e}{\textsf apart}} \color{#decfa3}{\textsf{of the}} \color{#717170}{\textsf{vhs collection!}} \color{#decfa3}{\textsf{ ﹕ ꔫ}}$
 
