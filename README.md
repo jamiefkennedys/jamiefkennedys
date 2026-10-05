@@ -2,7 +2,7 @@
 <img src="https://file.garden/aA8S96EHMAOFVxCO/Untitled272_20260303133627%20(1).png" width="700">
  <p align="center"
   
-![](https://komarev.com/ghpvc/?username=situationcritical&color=b57942&style=plastic&label=guns) ${\color{#decfa3}{\textsf / ︶︶}} \color{#717170}{\textsf{kaveh}} \color{#4c505f}{\textsf{or}}  \color{#717170}{\textsf{kei / kao}}$
+![](https://komarev.com/ghpvc/?username=situationcritical&color=b57942&style=plastic&label=guns) ${\color{#717170}{\textsf{kaveh}} \color{#4c505f}{\textsf{or}}  \color{#717170}{\textsf{kei / kao}}$
 <br/>
 ${\color{#717170}{\textsf he ⭑ any}} \color{#decfa3}{\textsf{　꒱　}} \color{#b1a88e}{\textsf{enfp-t }}  \color{#4c505f}{\textsf{eng only}}$
 <br/>
