@@ -28,3 +28,4 @@ $${\color{#4c505f} come　sit　by,　i　don't　mind　at　all　!　c+h}$$
   
 
 <p align="center"><img src="https://file.garden/aA8S96EHMAOFVxCO/Untitled272_20260303133627%20(2).png" width="700"></p>
+<p align="center"> $${\color{#b5794f} 　when　you've　seen　him　use　a　gun,　boy.}$$ </p>
