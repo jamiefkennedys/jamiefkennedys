@@ -1,8 +1,10 @@
+<p align="center"> $${\color{#663549} ⸺　I　just　cannot　help　myself　but　fall　right　into　You.}$$ </p>
+
 <p align="center"> 
 <img src="https://file.garden/aA8S96EHMAOFVxCO/Untitled272_20260303133627%20(1).png" width="700">
  <p align="center"
 
-${\color{#decfa3}{\textsf /ᐠ - ˕ -マ}} \color{#717170}{\textsf{kaveh}} \color{#4c505f}{\textsf{or}}  \color{#717170}{\textsf{kei / kao}}$
+![](https://komarev.com/ghpvc/?username=your-github-username&label=guns) ${\color{#717170}{\textsf kaveh}} \color{#4c505f}{\textsf{or}}  \color{#717170}{\textsf{kei / kao}}$
 <br/>
 ${\color{#717170}{\textsf he ⭑ any}} \color{#decfa3}{\textsf{　꒱　}} \color{#b1a88e}{\textsf{enfp-t }}  \color{#4c505f}{\textsf{eng only}}$
 <br/>
