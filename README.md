@@ -25,12 +25,27 @@ $${\color{#4c505f}　inspo　ok,　no　blatant　copying　however　idgaf}$$
     <br>
 $${\color{#4c505f} come　sit　by,　i　don't　mind　at　all　!　c+h}$$
     <br></p>
-  
+<p align="center"><img src="https://file.garden/aA8S96EHMAOFVxCO/horsehoe.png" width="440"></p>
+    
+  $${\color{#b5794f} ⸺﹒　me  
+　} {\color{#717170}　i　also　draw　as　a　hobby.}$$
+$${\color{#4c505f} im　extremely　mentally　ill　so　be　patient!}$$
+    <br>
+$${\color{#717170} my　ponies　are　all　inspired　by　my　designs.}$$
+　　<br>
+$${\color{#4c505f}　i　love　history,　mostly　of　germany.}$$
+    <br>
+$${\color{#4c505f} i　yume　with　ge,　specfically　my　design}$$
+<br>
+$${\color{#4c505f} and　my　favorite　historical　figure　is　jfk.}$$
+
+
+
 
 <p align="center"><img src="https://file.garden/aA8S96EHMAOFVxCO/Untitled272_20260303133627%20(2).png" width="700"></p>
 
 <p align="center"
   
-![](https://komarev.com/ghpvc/?username=jamiefkennedys&label=guns&color=b5794f)　 $${\color{#663549} when　you've　seen　him　use　a　gun,　boy.}$$ 　
+![](https://komarev.com/ghpvc/?username=jamiefkennedys&label=guns&color=b5794f)　 $${\color{#b5794f}⸺　when　you've　seen　him　use　a　gun,　boy.}$$ 　
 
 </p>
