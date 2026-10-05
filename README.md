@@ -1,4 +1,4 @@
-<p align="center"> ![](https://komarev.com/ghpvc/?username=jamiefkennedys) $${\color{#b5794f} ⸺　I　just　cannot　help　myself　but　fall　right　into　You.}$$ </p>
+<p align="center"> $${\color{#b5794f} ⸺　I　just　cannot　help　myself　but　fall　right　into　You.}$$ ![](https://komarev.com/ghpvc/?username=jamiefkennedys&label=guns&color=b5794f) </p> 
 
 <p align="center"> 
 <img src="https://file.garden/aA8S96EHMAOFVxCO/Untitled272_20260303133627%20(1).png" width="700">
