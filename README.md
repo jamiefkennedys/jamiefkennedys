@@ -13,12 +13,8 @@ ${\color{#8f5231}{\textsf mentally}} \color{#442b1e}{\textsf{ill,}} \color{#
 
 </p>
 <p align="center"><img src="https://file.garden/aA8S96EHMAOFVxCO/tumblr_25e04b71725987d508e52a11ae267c4b_d5ef3c9a_400.png" width="400"></p>
-  
-<tr>
-<td>
-  <details>
-<summary>$\color{#6b334a}{\textsf{ㅤㅤㅤㅤㅤPTㅤInfoㅤㅤㅤㅤㅤ}}$</summary>
-　　　<br>
+
+<p align="center"><br>
 $${\color{#717170} I'mㅤusuallyㅤofftab, ㅤpleaseㅤwhisperㅤtoㅤinteract.}$$
 　　<br>
 $${\color{#4c505f} C+HㅤisㅤalwaysㅤencouragedㅤunlessㅤI'mㅤonㅤDNI.}$$
@@ -26,17 +22,7 @@ $${\color{#4c505f} C+HㅤisㅤalwaysㅤencouragedㅤunlessㅤI'mㅤonㅤDNI.}$$
 $${\color{#717170} Pleaseㅤdon'tㅤcopyㅤmyㅤskins; ㅤinspoㅤisㅤokay.}$$
 　　<br>
 $${\color{#4c505f} Usuallyㅤsittingㅤbyㅤdocks, ㅤlibrary, ㅤorㅤatㅤaㅤregi...}$$
-    <br>
-
-  </details>
-  </td>
-  </tr>
-  <tr>
-<td>
-  <details>
-<summary>$\color{#964b64}{\textsf{ㅤㅤㅤㅤㅤPTㅤTitlesㅤㅤㅤㅤㅤ}}$</summary>
-    
-
+    <br></p>
+  
 
 <p align="center"><img src="https://file.garden/aA8S96EHMAOFVxCO/Untitled272_20260303133627%20(2).png" width="700"></p>
-
