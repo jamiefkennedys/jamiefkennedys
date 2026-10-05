@@ -9,7 +9,8 @@ ${\color{#b5794f}{\textsf   ︶︶　Jamie}} \color{#8f5231}{\textsf{ou　}}�
 ${\color{#442b1e}{\textsf he ⭑ it}} \color{#8f5231}{\textsf{　 ᛝ }} \color{#b5794f}{\textsf{sys }}  \color{#8f5231}{\textsf{eng only}}$
 <br/>
 ${\color{#8f5231}{\textsf mentally}} \color{#501913}{\textsf{ill,}} \color{#442b1e}{\textsf{iwec .}} \color{#b5794f}{\textsf{ ﹕ ◞◟}}$
-<p align="center"> [sign my ata](https://atabook.org/jfk) ✚ [listography](https://listography.com/jfk) </p>
+<br/>
+[sign my ata](https://jfk.atabook.org) 　‎✚　 [listography](https://istography.com/jfk)
 
 
 </p>
