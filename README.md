@@ -14,13 +14,16 @@ ${\color{#8f5231}{\textsf mentally}} \color{#442b1e}{\textsf{ill,}} \color{#
 </p>
 <p align="center"><img src="https://file.garden/aA8S96EHMAOFVxCO/tumblr_25e04b71725987d508e52a11ae267c4b_d5ef3c9a_400.png" width="400"></p>
 
-<p align="center"><br> ${\color{#8f5231}{\textsf ponytown}}
-$${\color{#717170} I'mㅤusuallyㅤofftab, ㅤpleaseㅤwhisperㅤtoㅤinteract.}$$
-$${\color{#4c505f} C+HㅤisㅤalwaysㅤencouragedㅤunlessㅤI'mㅤonㅤDNI.}$$
+<p align="center"><br> 
+$${\color{#b5794f} ⸺﹒　ponytown  
+　} {\color{#717170}　only　at　ch　area.}$$
+$${\color{#4c505f} usually　offtab　so　please　whisper　2　int.}$$
     <br>
-$${\color{#717170} Pleaseㅤdon'tㅤcopyㅤmyㅤskins; ㅤinspoㅤisㅤokay.}$$
+$${\color{#717170} open　for　rp,　chat　or　being　friends... pls}$$
 　　<br>
-$${\color{#4c505f} Usuallyㅤsittingㅤbyㅤdocks, ㅤlibrary, ㅤorㅤatㅤaㅤregi...}$$
+$${\color{#4c505f}　inspo　ok,　no　blatant　copying　however　idgaf}$$
+    <br>
+$${\color{#4c505f} come　sit　by,　i　don't　mind　at　all　!　c+h}$$
     <br></p>
   
 
