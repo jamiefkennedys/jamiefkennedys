@@ -8,7 +8,7 @@ ${\color{#b5794f}{\textsf   ︶︶　Jamie}} \color{#8f5231}{\textsf{ou　}}�
 <br/>
 ${\color{#442b1e}{\textsf he ⭑ it}} \color{#8f5231}{\textsf{　 ᛝ }} \color{#b5794f}{\textsf{sys }}  \color{#8f5231}{\textsf{eng only}}$
 <br/>
-${\color{#8f5231}{\textsf mentally}} \color{#442b1e}{\textsf{ill,}} \color{#442b1e}{\textsf{iwec .}} \color{#b5794f}{\textsf{ ﹕ ◞◟}}$
+${\color{#8f5231}{\textsf mentally}} \color{#501913}{\textsf{ill,}} \color{#442b1e}{\textsf{iwec .}} \color{#b5794f}{\textsf{ ﹕ ◞◟}}$
 
 
 </p>
@@ -28,4 +28,9 @@ $${\color{#4c505f} come　sit　by,　i　don't　mind　at　all　!　c+h}$$
   
 
 <p align="center"><img src="https://file.garden/aA8S96EHMAOFVxCO/Untitled272_20260303133627%20(2).png" width="700"></p>
-<p align="center"> $${\color{#b5794f} 　when　you've　seen　him　use　a　gun,　boy.} ![](https://komarev.com/ghpvc/?username=jamiefkennedys&label=guns&color=b5794f) $$  </p>
+
+<p align="center"
+  
+![](https://komarev.com/ghpvc/?username=jamiefkennedys&label=guns&color=b5794f)　 $${\color{#663549} when　you've　seen　him　use　a　gun,　boy.}$$ 　
+
+</p>
